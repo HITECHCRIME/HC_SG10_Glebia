@@ -12,7 +12,7 @@ Zamach na moją twarzy uderzy raz
 **czuję wszystko czego - wiecznie chcesz
 bez pierdolnięcia nie będzie okay
 na twoje życzenie - zniszczę Ci face
-bez pierdolnięcia nie będzie okay**
+bez pierdolnięcia nie będzie okay** 
 
 [VERSE 1]
 zniszczę ci face - smyczek symfonii (9)
